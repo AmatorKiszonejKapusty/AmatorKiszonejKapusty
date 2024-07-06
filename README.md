@@ -7,7 +7,7 @@
 
 <div align="center">
 
-ㅤㅤㅤㅤ<p> Will rmk it one day trust,,, My [2nd acc](https://github.com/MasloWybuchowe),, My [Restrospring](https://retrospring.net/@Maslo) ,, My [ carrd](https://masllo.carrd.co) <3 <p/>
+ㅤㅤㅤㅤ<p> My [2nd acc](https://github.com/MasloWybuchowe),, My [Restrospring](https://retrospring.net/@Maslo) ,, My [ carrd](https://masllo.carrd.co) ,, dc: amatorkiszonejkapusty <p/>
 <p> Halloo!!! Im Masło I love interacting with people so dont fear to talk to me!! I'm very nice trust!</p>
 <p>Use whisp tho bc im 99% of the time off-tab playing or drawingg</p>
 <p>C + H always welcome even if i sit with friends!!!</p>
