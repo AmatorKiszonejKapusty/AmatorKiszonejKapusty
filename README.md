@@ -9,10 +9,11 @@
 
 ㅤㅤㅤㅤ<p> My [2nd acc](https://github.com/MasloWybuchowe),, My [Restrospring](https://retrospring.net/@Maslo) ,, My [ carrd](https://masllo.carrd.co) ,, dc: amatorkiszonejkapusty <p/>
 <p> Halloo!!! Im Masło I love interacting with people so dont fear to talk to me!! I'm very nice trust!</p>
-<p>Use whisp tho bc im 99% of the time off-tab playing or drawingg</p>
+<p>Use whisp tho bc im 99% of the time off-tab</p>
 <p>C + H always welcome even if i sit with friends!!!</p>
 <p>THE PATh is mine!!! >:(( /j I love my path come to sit with me on my path</p>
-<p> I was @RudySzczur b4 pls dont forget me</p>
+<p>My Fortnite user: AmatorKapusty & Valorant id: FreakyMasło#00000 add me plsplspls</p>
+<p>Also I was @RudySzczur b4 pls dont forget me</p>
 
 ㅤㅤㅤㅤ<p>  ![](https://komarev.com/ghpvc/?username=RudySzczur&label=views&color=cc8706) <p/>
 
