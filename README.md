@@ -1,3 +1,7 @@
+<div align="center">
+
+ㅤㅤㅤㅤ<p>  ![](https://komarev.com/ghpvc/?username=RudySzczur&label=views&color=cc8706) <p/>
+</div>
 
 <div align="center">
 
@@ -18,7 +22,7 @@
 ㅤㅤㅤㅤ<p>  ![](https://komarev.com/ghpvc/?username=RudySzczur&label=views&color=cc8706) <p/>
 <div align="center">
 
-ㅤㅤㅤㅤ<p> You shoud definitely watch [this](https://www.youtube.com/watch?v=PKZaVM6le4M) video <p/>
+ㅤㅤㅤㅤ<p> You should definitely watch [this](https://www.youtube.com/watch?v=PKZaVM6le4M) video <p/>
 <p>https://www.youtube.com/watch?v=PKZaVM6le4M<p/>
 <p>https://www.youtube.com/watch?v=PKZaVM6le4M<p/>
 <p>https://www.youtube.com/watch?v=PKZaVM6le4M<p/>
