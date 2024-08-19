@@ -18,6 +18,6 @@
 ㅤㅤㅤㅤ<p>  ![](https://komarev.com/ghpvc/?username=RudySzczur&label=views&color=cc8706) <p/>
 
 <img src="https://media.discordapp.net/attachments/872217789589504031/1266215074511458355/image.png?ex=66a4562e&is=66a304ae&hm=e360d62066153041aa8b43646b270782f2e46111f18087f46075f94360e96a23&=&format=webp&quality=lossless&width=500&height=350">
-<img src="https://media.discordapp.net/attachments/1256979875953115158/1259230519774806016/image.png?ex=668aed4f&is=66899bcf&hm=d03b9bed1231af4133cb6af39c57c58bb4f36a47512f83a5a947bdabd8afe68c&=&format=webp&quality=lossless&width=1078&height=662">
+<img src="https://media.discordapp.net/attachments/1256979875953115158/1275137248802902069/image.png?ex=66c4cb9b&is=66c37a1b&hm=e1123d3766005167891954f8d388a0ff3394def67f241b11887c2215ba10f80d&=&format=webp&quality=lossless&width=1440&height=536">
 
 </div>
