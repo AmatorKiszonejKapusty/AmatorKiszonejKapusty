@@ -19,7 +19,6 @@
 <p>My Fortnite user: AmatorKapusty & Valorant id: FreakyMasło#00000 ooouu youu want tooo add meee so baddd</p>
 <p>Also I was @RudySzczur b4 pls dont forget me</p>
 
-ㅤㅤㅤㅤ<p>  ![](https://komarev.com/ghpvc/?username=RudySzczur&label=views&color=cc8706) <p/>
 <div align="center">
 
 ㅤㅤㅤㅤ<p> You should definitely watch [this](https://www.youtube.com/watch?v=PKZaVM6le4M) video <p/>
