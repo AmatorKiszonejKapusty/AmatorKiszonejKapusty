@@ -16,7 +16,6 @@
 <p>Use whisp tho bc im 99% of the time off-tab</p>
 <p>C + H always welcome even if i sit with friends!!! I love my path come to sit with me on my path >_<</p>
 <p>My Fortnite user: AmatorKapusty & Valorant id: FreakyMasło#00000 ooouu youu want tooo add meee so baddd</p>
-==
 
 <div align="center">
 
