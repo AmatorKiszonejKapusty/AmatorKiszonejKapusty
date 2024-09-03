@@ -22,5 +22,6 @@
 <div align="center">
 
 <img src="https://media.discordapp.net/attachments/1056236756279763026/1280554747228717230/oldmanyaoi.png?ex=66d8810b&is=66d72f8b&hm=bff67a753660935ba90ec69214b15081bbe6c700800397549bc6742c2635fc69&=&format=webp&quality=lossless&width=733&height=567">
+<p>oryg img credit to @lilalienz4ever on twtr</p>
 
 </div>
