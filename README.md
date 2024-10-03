@@ -19,7 +19,6 @@
 
 <div align="center">
 
-<img src="https://media.discordapp.net/attachments/1085317881564242011/1280554577783160852/oldmanyaoi.png?ex=66f62aa2&is=66f4d922&hm=c746ad6625fc9bcc403eed77eac7145e195aee80f8b234db1def9b02e569a54b&=&format=webp&quality=lossless&width=733&height=567">
-<p>oryg img credit to @lilalienz4ever on twtr</p>
+<img src="https://media.discordapp.net/attachments/1191680122818936862/1291436277312389120/picmix.com_12081155.gif?ex=67001742&is=66fec5c2&hm=cc2f01ff0b4423206f333667c9bb24f3fd73682ab849f0ebdf7dcff3d54fd63c&=&width=978&height=978">
 
 </div>
