@@ -19,6 +19,6 @@
 
 <div align="center">
 
-<img src="https://media.discordapp.net/attachments/1191680122818936862/1291436277312389120/picmix.com_12081155.gif?ex=67001742&is=66fec5c2&hm=cc2f01ff0b4423206f333667c9bb24f3fd73682ab849f0ebdf7dcff3d54fd63c&=&width=978&height=978">
+<img src="https://media.discordapp.net/attachments/1191680122818936862/1295478710933127298/picmix.com_12081155.gif?ex=670ecc11&is=670d7a91&hm=a1f38e124e6fe1bcf116e9420a7bf6ef0827ad8e25696e8b65ce10ad0a4f9628&=&width=437&height=437">
 
 </div>
