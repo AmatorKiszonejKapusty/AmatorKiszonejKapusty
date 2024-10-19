@@ -24,6 +24,9 @@
 
 <div align="center">
 hear me out cake with @Aeenic & @srubakret
-<img src="https://media.discordapp.net/attachments/1205977674015580180/1297309542513643590/Untitled_drawing.png?ex=67157529&is=671423a9&hm=28475091de4b18040d07907473b6d5493d5f8abb8070ef700f176d0d34f02770&=&format=webp&quality=lossless&width=687&height=386">
+<p align="center">
+
+
+![image](https://github.com/user-attachments/assets/af041395-e07c-40a3-ba19-7e8348251ec6)
 
 </div>
