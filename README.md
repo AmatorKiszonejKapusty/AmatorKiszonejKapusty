@@ -5,7 +5,7 @@
 
 <div align="center">
 
-ㅤㅤㅤㅤ<p>  [! HELP PALESTINE !](https://arab.org/click-to-help/palestine/) <p/>
+ㅤㅤㅤㅤ<p>  [SIGN MY CHRISTMAS TREE >_<](https://colormytree.me/2024/01HHSV4QA3GHYXQXVM4S8GCVD4) <p/>
 </div>
 
 
