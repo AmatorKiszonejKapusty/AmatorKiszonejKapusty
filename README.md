@@ -5,12 +5,6 @@
 
 <div align="center">
 
-ㅤㅤㅤㅤ<p>  [SIGN MY CHRISTMAS TREE >_<](https://colormytree.me/2024/01HHSV4QA3GHYXQXVM4S8GCVD4) <p/>
-</div>
-
-
-<div align="center">
-
 ㅤㅤㅤㅤ<p> My [Atabook](https://maslo.atabook.org) ,, My [ carrd](https://masllo.carrd.co) ,, My [rentry](https://rentry.co/maslo) ,, My [Restrospring](https://retrospring.net/@Maslo) ,, dsc: amatorkiszonejkapusty <p/>
   <p> Halloo!!! Im Masło I love interacting with people so dont fear to talk to me!! I'm very nice trust!</p>
   <p>Use whisp tho bc im 99% of the time off-tab, or add me on discord!!</p>
