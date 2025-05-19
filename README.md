@@ -14,17 +14,12 @@
   <p>Reverse1999 id: 405845988</p>
   <p>crk name (holyberry serv): yaoimaxxxing ,, JOIN MY BESTIES AND MINE GUILD PRETTY PLEASE >_< guild name: hawkyurituah</p>
   <p>ooouu youu want tooo add meee so baddd</p>
-<div align="center">
-
-ㅤㅤ
-</div>
 </div>
 
 <div align="center">
+![image](https://github.com/user-attachments/assets/d51c88b9-4e5c-44ae-8ba4-6384527d2916)
+
 
 <p align="center">
-
-![image](![image](https://github.com/user-attachments/assets/47a5be92-263d-47e6-b38b-96092043c43b)
-)
 
 </div>
