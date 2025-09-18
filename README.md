@@ -13,7 +13,6 @@
   <p>Valorant id: Masło#finn</p>
   <p>Reverse1999 id: 405845988</p>
   <p>Uma musu id (eng serv): 398 424 524 390</p>
-  <p>crk name (holyberry serv): yaoimaxxxing ,, JOIN MY BESTIES AND MINE GUILD PRETTY PLEASE >_< guild name: hawkyurituah</p>
   <p>ooouu youu want tooo add meee so baddd</p>
 </div>
 
