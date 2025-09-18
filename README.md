@@ -19,7 +19,8 @@
 
 <div align="center">
 
-<img width="1068" height="772" alt="image" src="https://github.com/user-attachments/assets/96bdfb49-63ce-469d-8fef-5ed3ca6fc7ad" />
+<img width="901" height="1010" alt="image" src="https://github.com/user-attachments/assets/17ea5b0f-cea9-42cd-bd85-86dbc32a150d" />
+
 
 
 <p align="center">
