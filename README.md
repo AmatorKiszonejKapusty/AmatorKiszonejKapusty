@@ -10,7 +10,7 @@
   <p>Use whisp tho bc im 99% of the time off-tab, or add me on discord!!</p>
   <p>C + H always welcome even if i sit with friends!!! I love my path come to sit with me on my path >_<</p>
   <p>My Fortnite user: AmatorKapusty</p>
-  <p>Valorant id: bubel masło#aura</p>
+  <p>Riot id (lol & valo): bubel masło#udar</p>
   <p>Reverse1999 id: 405845988</p>
   <p>Uma musu id (eng serv): 398 424 524 390</p>
   <p>ooouu youu want tooo add meee so baddd</p>
