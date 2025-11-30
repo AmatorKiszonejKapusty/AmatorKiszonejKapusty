@@ -8,6 +8,7 @@
 ㅤㅤㅤㅤ<p> «────────────────── « ⋅ʚ✧ɞ⋅ » ──────────────────» <p/>
   <p>  ‎   <p/>
   <p> «⋅ʚ https://maaslo.carrd.co ɞ⋅» <p/>
+  <p> «⋅ʚ https://amatorkiszonejkapusty.atabook.org ɞ⋅» <p/>
   <p> «⋅ʚ dsc: amatorkiszonejkapusty ɞ⋅» <p/>
   <p> «⋅ʚ Halloo!!! Im Masło I love interacting with people so dont fear to talk to me!! I'm very nice trust! ɞ⋅» </p>
   <p> «⋅ʚ Use whisp tho bc im 99% of the time off-tab, or add me on discord!! ɞ⋅» </p>
