@@ -19,7 +19,8 @@
 
 <div align="center">
 
-<img src="https://media1.tenor.com/m/QcS-FSxRr-QAAAAC/uma-musume-silence-suzuka.gif" />
+<img width="1024" height="576" alt="image" src="https://github.com/user-attachments/assets/f9176f40-1fbd-4a4b-87c2-cec873b837d9" />
+
 
 
 
